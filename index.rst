@@ -1,4 +1,4 @@
-¶COD MOBILE CP HACK - COD MOBILE FREE CP GENERATOR ONLINE
+[COD MOBILE HACK] (FREE COD MOBILE CP HACK 2021)
 ~~~~~~~~~~~~
 [[Updated September 14, 2021]] Free Fire Generator Unlimited Diamonds Hack Tool 2021
 
@@ -13,7 +13,7 @@
   <https://gamedip.xyz/hax/fb1cb43>`_
 
 
-1 seconds ago. We have discovered again a new Call of Duty Mobile Hack. Are you ready for our new Call of Duty Mobile CP Hack 2020?
+3 seconds ago. We have discovered again a new Call of Duty Mobile Hack. Are you ready for our new Call of Duty Mobile CP Hack 2020?
 
 you're just a couple of steps faraway from finally getting free resources on your iOS and Android smartphone and tablet!
 
